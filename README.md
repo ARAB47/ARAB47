@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ARAB47
-- 👀 I’m interested in ... SGDD
-- 🌱 I’m currently learning ...S31EA
+- 👀 I’m interested in ... СТАТЬ ХАКЕР 
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...FREDG
-- 📫 How to reach me FDUETUEFD
+- 📫 How to reach me  ТЕЛЕГРАМ SARIIBOT
 - 😄 Pronouns: ...GTSG
 - ⚡ Fun fact: ...SPORT
 
